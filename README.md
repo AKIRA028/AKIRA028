@@ -52,11 +52,11 @@
 <br>
 <br>
 📬 Get in Touch:
-•	LinkedIn: [Linkedin](https://www.linkedin.com/in/niraval/)
+•	LinkedIn: [Linkedin Profile Nirav](https://www.linkedin.com/in/niraval/)
 <br>
-•	Email: [Email](niravjraval@outlook.com)
+•	Email: [Nirav's Email](niravjraval@outlook.com)
 <br>
-•	Website: [Web](https://akira28.com/)
+•	Website: [AKIRA28](https://akira28.com/)
 <br>
 <br>
 Let's create something awesome together! 🚀
